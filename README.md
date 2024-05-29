@@ -7,12 +7,11 @@ Meu nome é Alice Martins
 -Estou no processo para me tornar uma religiosa, da Fraternidade São Francisco de Assis na Providência de Deus
 
  ->@franciscanasnaprovidencia (nosso instagram)
+ 
 
 -Estou estudando no Alura
 
--Estou aprendendo a linguegem JavaScript
-
--Utilizo aqui para compartilhar os meus projetos desenvolvidos
+### EU TE AMO JESUSSS 🤎🤎
 
 
 
